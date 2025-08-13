@@ -1,1 +1,3 @@
+MSc Econometrics & Financial Technology Student | Interested in Finance, Data & Tech
+
 Highly motivated and detail-oriented MSc student in Econometrics and Financial Technology at Cochin University of Science and Technology. Passionate about leveraging data analysis and quantitative methods to solve real-world financial problems. Developing skills in Python, statistical modeling, econometrics and financial technologies. Always eager to learn, collaborate, and explore new ideas in finance, data science, and technology. Seeking opportunities to learn from industry experts and gain practical experience in the field. Looking forward to connecting with like-minded professionals and students.
